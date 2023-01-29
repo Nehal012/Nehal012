@@ -1,4 +1,4 @@
-![I am an graduated Electrical and Electronic Engineer from Ahsanullah University Of Science And Technology](https://scontent.fdac99-1.fna.fbcdn.net/v/t39.30808-6/328105315_1555021665018754_2018481414250745586_n.jpg?stp=dst-jpg_s1080x2048&_nc_cat=101&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeEkJJL-daGlMbKwUB75eYbbewcZZkIBWvV7BxlmQgFa9VE_nS6mVL62P-ltG-b7YXaDA5vEiTcArIicc-s8rrgg&_nc_ohc=TykQX-Lf3lsAX8lJ3sp&_nc_ht=scontent.fdac99-1.fna&oh=00_AfD8jjM0SHlRt88go15Ip1Qm24uNUGDtao1pkB_GkbzQJw&oe=63DBEE4E)
+![I am an graduated Electrical and Electronic Engineer from Ahsanullah University Of Science And Technology](https://scontent.fdac99-1.fna.fbcdn.net/v/t39.30808-6/323300898_480006330953340_4164233532695242228_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=09cbfe&_nc_eui2=AeEJX1MME1Y88YO3lBUxiRqq4sHD2vys39HiwcPa_Kzf0XjFsEMY2J7JEEMA16IkUHuWG9reLzgBZZSKM5EcCMMh&_nc_ohc=p8DYmQynh6IAX_rx5g0&tn=XeAPLNJvmqUKXy4q&_nc_ht=scontent.fdac99-1.fna&oh=00_AfCU6-DC99ClDnomTXxI7MrC-q2sn8CPn3OC0B9QEu81Tg&oe=63DB8409)
 
 ### Hi there 👋, I'm Md Nehal Hasnain
 #### I am an graduated Electrical and Electronic Engineer from Ahsanullah University Of Science And Technology
