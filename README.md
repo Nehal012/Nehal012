@@ -13,7 +13,6 @@ my colleagues as a good team player is my nature.
 
 Skills: C++ / HTML / CSS / Basic JavaScript for Web design / WordPress design / Basic Python / Cadence EDA(Linux Operator) / Microsoft Word Office / Basic Photoshop and Video Editing
 
-- 🔭 I’m currently working as a part-time freelance content writer 
 - 🌱 I’m currently learning my previous skills to stay in a practice mode 
 - 👯 I’m looking to collaborate on any software intern related to both front-end and back-end developers 
 - 🤔 I’m looking for help with doing interns as a fresher in a private or multi-national company
